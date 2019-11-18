@@ -1,0 +1,2 @@
+# sello-maldito
+Persona Egocentrica
